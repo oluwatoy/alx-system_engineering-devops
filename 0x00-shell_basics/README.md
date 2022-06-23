@@ -1,1 +1,1 @@
-full
+stay
